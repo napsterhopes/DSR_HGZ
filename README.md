@@ -4,6 +4,7 @@
 - Washbasin in utility is small , can you do something about it?
 - Chipping is not allowed for ceiling lights
 - Get waste removal charges removed from the interior as we are already paying to DSR
+- Can i have bathroom tiles till ceiling to hide geyser and AC pipe?
 
 ## Measurements
 While you take measurements , you can match it with brochure.
