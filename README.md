@@ -9,3 +9,7 @@
 ## Measurements
 While you take measurements , you can match it with brochure.
 1 to 3 inches will be reduced due to wall plastering.
+
+### Open Questions
+
+- SS carcass for water intensive areas? - Tusskr
