@@ -1,0 +1,2 @@
+- Sofa
+- Hydraulics with storage bed in both rooms
