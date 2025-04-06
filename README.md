@@ -1,3 +1,7 @@
+## Floor Plan
+
+- [Click here](https://drive.google.com/file/d/1rDQCmyMdvuKxKpJB3IWKstD4yGvFV3Hr/view?usp=drive_link)
+
 # General
 
 - Gas pipe of AC needs to be included as part of interiors. Outlet of water pipe is taken care and put into washroom
