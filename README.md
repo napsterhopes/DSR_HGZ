@@ -18,6 +18,10 @@
 While you take measurements , you can match it with brochure.
 1 to 3 inches will be reduced due to wall plastering.
 
+## Material
+
+- PLY : Greenply Gold BWP 710 and Greenply MR 303
+
 ### Open Questions
 
 - SS carcass for water intensive areas? - Tusskr
