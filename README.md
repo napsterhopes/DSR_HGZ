@@ -24,6 +24,4 @@ While you take measurements , you can match it with brochure.
 
 ### Open Questions
 
-- SS carcass for water intensive areas? - Tusskr
 - Mirror finish Fluted laminate : For TV unit?
-- 
