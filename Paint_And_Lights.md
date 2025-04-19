@@ -11,3 +11,10 @@
 9. North-North-East : Light green, white, and cream.
 10. North-North-West:Colors: Light blue, grey, and white.
 
+> [Lighter Shades:](https://www.instagram.com/reel/DIOenD0Bk9l/?igsh=MWkwZTN1MG9sYWQ2bA%3D%3D)
+
+- History Textbooks NN 9090 (Birla Opus)
+- Moccasin 8763 (Asian Paints)
+- Pisces 8474 (Asian Paints)
+- Corners Of Bread NN 9057 (Birla Opus)
+- Whispering Smoke 8308 (Asian Paints)
