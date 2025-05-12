@@ -9,3 +9,5 @@
 - Create a same size plan openable via rotateable lock
 
 ![Balcony_Pipe](https://github.com/user-attachments/assets/4eb03286-d260-49bc-b869-af84ebf6cb60)
+
+- Cover MCB board with key holder
