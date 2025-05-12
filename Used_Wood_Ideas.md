@@ -5,3 +5,7 @@
 
 - https://www.instagram.com/reel/DH2ZSN8qji_/?igsh=MTJocHgyY3o1eHg3ag%3D%3D
 - https://www.instagram.com/reel/DH51pc0NaFi/?igsh=NzJzd2xxaHc1aXgx
+
+- Create a same size plan openable via rotateable lock
+
+![Balcony_Pipe](https://github.com/user-attachments/assets/4eb03286-d260-49bc-b869-af84ebf6cb60)
